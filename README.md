@@ -1,4 +1,4 @@
-# Your June 2026 Guide to AWS Training In Marathahalli — Version 1
+# AWS Training In Marathahalli Mastery — Edition #1 (2026)
 
 Best AWS Training in marathahalli — Complete Guide 2026
 
